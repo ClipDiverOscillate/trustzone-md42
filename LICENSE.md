@@ -1,4 +1,4 @@
-
+Trust.Zone rare Plugin: multi-device-support & IP-masking is the best Trust.Zone plugin, featuring multi-device-support and IP-masking. Secure, fast, and optimized for privacy.
 
 
 
